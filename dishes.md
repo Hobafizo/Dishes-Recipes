@@ -16,3 +16,4 @@
 
 ## Sandwiches
 - Red ground meat with worcestershire sauce, potatoes and siracha sauce burrito
+- Siracha chicken wrap
