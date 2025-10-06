@@ -10,6 +10,7 @@
 - Fried rice with eggs, sides of choice
 - A classic Egyptian white rice, meat and veggie
 - Basmati rice with any type of grills, steak, or chicken
+- Rice with lattice and Dawood Basha's kofta
 
 ## Other Dishes
 - Puff pastry with meat or chicken liver
